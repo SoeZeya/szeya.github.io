@@ -1,0 +1,1 @@
+# szeya.github.io
